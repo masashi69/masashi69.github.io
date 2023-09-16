@@ -1,4 +1,4 @@
-2023-08-27�ɁuPeppermint�v���������܂����B
+2023-08-27に「Peppermint」を視聴しました。
 
 Infomation
 
@@ -12,13 +12,13 @@ Production: N/A
 ---
 </pre>
 
-### �M��
+### 邦題
 
-���C���[�E�m�[�X -���Q�̏��_-
+ライリー・ノース -復讐の女神-
 
 ### Like
 
 ### Dislike
 
-���ʂ̎�w������Ȃɐ퓬�\�͂����Ă���̂Ȃ̂��B
+普通の主婦がそんなに戦闘能力を持てるものなのか。
 
