@@ -1,4 +1,4 @@
-2024-07-24‚ÉuReal Steelv‚ðŽ‹’®‚µ‚Ü‚µ‚½B
+2024-07-24ã«ã€ŒReal Steelã€ã‚’è¦–è´ã—ã¾ã—ãŸã€‚
 
 Infomation
 ```

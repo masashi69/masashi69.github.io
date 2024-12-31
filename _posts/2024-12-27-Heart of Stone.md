@@ -1,7 +1,5 @@
-
 ---
 title: Heart of Stone
-date: 2024-12-27
 ---
 
 2024-12-27に「Heart of Stone」を視聴しました。

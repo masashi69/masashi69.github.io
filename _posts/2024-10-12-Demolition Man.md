@@ -1,4 +1,4 @@
-2024-10-12‚ÉuDemolition Manv‚ğ‹’®‚µ‚Ü‚µ‚½B
+2024-10-12ã«ã€ŒDemolition Manã€ã‚’è¦–è´ã—ã¾ã—ãŸã€‚
 
 Infomation
 ```

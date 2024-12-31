@@ -1,4 +1,4 @@
-2024-08-18‚ÉuThe Unbearable Weight of Massive Talentv‚ğ‹’®‚µ‚Ü‚µ‚½B
+2024-08-18ã«ã€ŒThe Unbearable Weight of Massive Talentã€ã‚’è¦–è´ã—ã¾ã—ãŸã€‚
 
 Infomation
 ```

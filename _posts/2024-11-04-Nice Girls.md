@@ -1,4 +1,4 @@
-2024-11-04‚ÉuNice Girlsv‚ðŽ‹’®‚µ‚Ü‚µ‚½B
+2024-11-04ã«ã€ŒNice Girlsã€ã‚’è¦–è´ã—ã¾ã—ãŸã€‚
 
 Infomation
 ```

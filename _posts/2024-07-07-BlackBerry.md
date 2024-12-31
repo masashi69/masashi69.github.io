@@ -1,4 +1,4 @@
-2024-07-07‚ÉuBlackBerryv‚ðŽ‹’®‚µ‚Ü‚µ‚½B
+2024-07-07ã«ã€ŒBlackBerryã€ã‚’è¦–è´ã—ã¾ã—ãŸã€‚
 
 Infomation
 ```

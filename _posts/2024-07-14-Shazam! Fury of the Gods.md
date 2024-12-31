@@ -1,4 +1,4 @@
-2024-07-14‚ÉuShazam! Fury of the Godsv‚ðŽ‹’®‚µ‚Ü‚µ‚½B
+2024-07-14ã«ã€ŒShazam! Fury of the Godsã€ã‚’è¦–è´ã—ã¾ã—ãŸã€‚
 
 Infomation
 ```

@@ -1,4 +1,4 @@
-2024-07-15‚ÉuHunt for the Wilderpeoplev‚ğ‹’®‚µ‚Ü‚µ‚½B
+2024-07-15ã«ã€ŒHunt for the Wilderpeopleã€ã‚’è¦–è´ã—ã¾ã—ãŸã€‚
 
 Infomation
 ```

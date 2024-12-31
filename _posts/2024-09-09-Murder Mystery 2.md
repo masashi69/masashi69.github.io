@@ -1,4 +1,4 @@
-2024-09-09‚ÉuMurder Mystery 2v‚ğ‹’®‚µ‚Ü‚µ‚½B
+2024-09-09ã«ã€ŒMurder Mystery 2ã€ã‚’è¦–è´ã—ã¾ã—ãŸã€‚
 
 Infomation
 ```

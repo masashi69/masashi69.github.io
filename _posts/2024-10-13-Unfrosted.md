@@ -1,4 +1,4 @@
-2024-10-13‚ÉuUnfrostedv‚ðŽ‹’®‚µ‚Ü‚µ‚½B
+2024-10-13ã«ã€ŒUnfrostedã€ã‚’è¦–è´ã—ã¾ã—ãŸã€‚
 
 Infomation
 ```

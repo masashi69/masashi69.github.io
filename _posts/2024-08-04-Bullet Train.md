@@ -1,4 +1,4 @@
-2024-08-04‚ÉuBullet Trainv‚ðŽ‹’®‚µ‚Ü‚µ‚½B
+2024-08-04ã«ã€ŒBullet Trainã€ã‚’è¦–è´ã—ã¾ã—ãŸã€‚
 
 Infomation
 ```

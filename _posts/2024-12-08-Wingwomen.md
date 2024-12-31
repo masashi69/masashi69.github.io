@@ -1,4 +1,4 @@
-2024-12-08‚ÉuWingwomenv‚ðŽ‹’®‚µ‚Ü‚µ‚½B
+2024-12-08ã«ã€ŒWingwomenã€ã‚’è¦–è´ã—ã¾ã—ãŸã€‚
 
 Infomation
 ```

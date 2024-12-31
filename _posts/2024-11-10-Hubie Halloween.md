@@ -1,4 +1,4 @@
-2024-11-10‚ÉuHubie Halloweenv‚ğ‹’®‚µ‚Ü‚µ‚½B
+2024-11-10ã«ã€ŒHubie Halloweenã€ã‚’è¦–è´ã—ã¾ã—ãŸã€‚
 
 Infomation
 ```

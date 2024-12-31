@@ -1,4 +1,4 @@
-2024-11-24‚ÉuSome Like It Rarev‚ğ‹’®‚µ‚Ü‚µ‚½B
+2024-11-24ã«ã€ŒSome Like It Rareã€ã‚’è¦–è´ã—ã¾ã—ãŸã€‚
 
 Infomation
 ```

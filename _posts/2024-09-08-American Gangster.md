@@ -1,4 +1,4 @@
-2024-09-08‚ÉuAmerican Gangsterv‚ğ‹’®‚µ‚Ü‚µ‚½B
+2024-09-08ã«ã€ŒAmerican Gangsterã€ã‚’è¦–è´ã—ã¾ã—ãŸã€‚
 
 Infomation
 ```

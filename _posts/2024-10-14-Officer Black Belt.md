@@ -1,4 +1,4 @@
-2024-10-14‚ÉuOfficer Black Beltv‚ðŽ‹’®‚µ‚Ü‚µ‚½B
+2024-10-14ã«ã€ŒOfficer Black Beltã€ã‚’è¦–è´ã—ã¾ã—ãŸã€‚
 
 Infomation
 ```
